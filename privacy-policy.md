@@ -1,4 +1,4 @@
-Dưới đây là chính sách quyền riêng tư của DreamG, nhóm phát triển game, cho các sản phẩm game mà chúng tôi tạo ra.
+Dưới đây là chính sách quyền riêng tư của DreamF, nhóm phát triển game, cho các sản phẩm game mà chúng tôi tạo ra.
 
 Chúng tôi cam kết bảo vệ quyền riêng tư của người dùng và đảm bảo rằng thông tin của họ được bảo mật. Chính sách này giải thích cách chúng tôi thu thập, sử dụng và chia sẻ thông tin trong sản phẩm game của chúng tôi.
 
